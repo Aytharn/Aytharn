@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Aytharn
+- 👀 I’m interested in Technology, Programming, Finding Solutions to Problems
+- 🌱 I’m currently learning how to live
